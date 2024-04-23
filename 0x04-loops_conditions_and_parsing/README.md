@@ -1,1 +1,1 @@
-sshe project
+sshe projecit
